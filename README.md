@@ -1,8 +1,8 @@
 ### Asher Titus
 
-Senior at the University of Iowa
-Tippie College of Business, Finance and Business Analytics
-Kansas City, MO
+Senior at the University of Iowa.
+Tippie College of Business, Finance and Business Analytics.
+Kansas City, MO.
 ashertitus@gmail.com
 
 <!--
